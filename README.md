@@ -1,2 +1,0 @@
-# demureaxs.github.io
-Homepage
